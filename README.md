@@ -15,7 +15,3 @@
 - 📄 Know about my experiences [https://in.docworkspace.com/d/sIFyrwd8kl4KcoQY](https://in.docworkspace.com/d/sIFyrwd8kl4KcoQY)
 
 - ⚡ Fun fact **I am Witty**
-
-<h3 align="left">Connect with me:</h3>
-<p align="left">
-</p>
